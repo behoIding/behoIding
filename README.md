@@ -6,8 +6,8 @@
 <b>FRIDAY</b> / KIERAN / VALENTINE⠀  <b>18</b>yo
 <br> (s)he/<b>it</b>/<b>thing</b>/coffin [(++)](https://pronouns.cc/@distortedheart) ⠀ <img src="https://file.garden/ZeI95KU2fRZAwqZH/x4bk4s.gif"/>
 </p>
-<p>very ok with interaction! i basically never initiate but dont hesitate <br> to talk to me or smth... i dont bite ^_^ please <b>whisper</b> if you <br> please <b>whisper</b> want my attention though. i am off tab/afk a lot soo<br> i probably wont see ur msg otherwise. <b>no roleplay</b> please, <b>c + h</b> ok. </p> 
-<p>what else do i put here. i dont know. just dont be weird??</p>
+<p>very ok with interaction! i basically never initiate but dont hesitate <br> to talk to me or smth... i dont bite ^_^ please <b>whisper</b> if you <br> want my attention though. i am off tab/afk more often than not soo<br> i probably wont see ur msg otherwise. <b>no roleplay</b> please, <b>c + h</b> ok. </p> 
+<p>what else do i put here. i dont know. i barely go here. dont be weird</p>
 <img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/>
 <p>not necessarily a dni but note i ignore most <b>hh/helluva, southpark</b><br> and <b>dsmp</b> people. i hate those fandoms. sorry. i just dont want to <br> interact with them. i block/hide freely for other reasons too.</p>
 
