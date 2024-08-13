@@ -1,19 +1,19 @@
 <div align="center"/>
 
-<img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-2-d6815371b5.gif"/>
+
+<b>FRIDAY / KIERAN / VALENTINE</b> ETC 18yo ― S(HE)/<b>IT</b>/<b>THING</b>/COFFIN [(++)](https://pronouns.cc/@distortedheart) 
+
+<img src="https://file.garden/ZeI95KU2fRZAwqZH/43614-a87bbf3f-c602-4580-a74b-b308a2ab32b7-profile.jpg"/>
 <p align="center">
   
-<b>FRIDAY</b> / KIERAN / VALENTINE⠀  <b>18</b>yo
-<br> (s)he/<b>it</b>/<b>thing</b>/coffin [(++)](https://pronouns.cc/@distortedheart) ⠀ <img src="https://file.garden/ZeI95KU2fRZAwqZH/x4bk4s.gif"/>
 </p>
-<p>very ok with interaction! i basically never initiate but dont hesitate <br> to talk to me or smth... i dont bite ^_^ please <b>whisper</b> if you <br> want my attention though. i am off tab/afk more often than not soo<br> i probably wont see ur msg otherwise. <b>no roleplay</b> please, <b>c + h</b> ok. </p> 
+<p><b>very ok with interaction!</b> i basically never initiate but dont hesitate to talk to me or<br> whatever i dont bite ^_^ please <b>whisper</b> if you want my attention though. i am off tab/afk more <br> often than not soo i probably wont see ur msg otherwise. <b>no roleplay</b> please, <b>c + h</b> ok. </p> 
 <p>what else do i put here. i dont know. i barely go here. dont be weird</p>
-<img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/591115t8qpmw0bs5.gif"/>
-<p>not necessarily a dni but note i ignore most <b>hh/helluva, southpark</b><br> and <b>dsmp</b> people. i hate those fandoms. sorry. i just dont want to <br> interact with them. i block/hide freely for other reasons too. <br> standard things, again just.. dont be weird. no bigots/creeps.</p>
+<p><b>dni</b> no super strict/specific dni i generally dont rlly care just dont be a bigot/creep and ur fine. <br> note i Do ignore/hide most <b>hazbin/helluva, southpark,</b> and <b>dsmp</b> people. i just kind of really</b> <br> hate seeing those medias if theyre ur main fandom i do not want to see it.</p>
 
 <p>
   
-Howeverrr. if youre into <b>tma/tmagp</b> Pleaseee talk to me... im stuck <br> in a very intense tma/tmagp phase (again). incase it wasnt already <br> obvious. im in the trenches like seriously actually in hell. i <img src="https://64.media.tumblr.com/a9425572bee503600b206d0bc4604672/1292363c2db9a7be-c7/s75x75_c1/d6a8be3d7b4591e87ba529e4d656ff65a2bc7adf.gifv"/> (in no <br> particular order) melanie helen elias daisy oliver gwen and lena. <br> and like. everyone else. Anywayss im also very into <b>milgram, idv,</b> <br> <b>vocasynths,</b> horror rpgmakers, fnaf, andddd ... other things. <br>feel free to talk to me about any of these ! (+ whatever else [here](https://text.is/watcherscrown))
+Howeverrr <b>tma/tmagp fans Pleaseeeplease interact.</b> Smiles. not forcing but also the fixation is bad im in <br> the trenches. i <img src="https://64.media.tumblr.com/a9425572bee503600b206d0bc4604672/1292363c2db9a7be-c7/s75x75_c1/d6a8be3d7b4591e87ba529e4d656ff65a2bc7adf.gifv"/> (in no particular order) melanie helen elias basira oliver gwen and lena. talk to me <br> about them and i put you on my will. Anywayss im also very into <b>milgram, idv, vocasynths,</b> horror rpgmakers, <br> fnaf, andddd ... other things. feel free to talk to me about any of these ! (+ whatever else [here](https://text.is/watcherscrown))
 
 </p>
 
