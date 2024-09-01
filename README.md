@@ -1,7 +1,7 @@
 <div align="center"/>
 
 
-<b>FRIDAY / KIERAN / VALENTINE</b> ETC 18yo ― S(HE)/<b>IT</b>/<b>THING</b>/COFFIN [(++)](https://pronouns.cc/@distortedheart) 
+<b>FRIDAY / KIERAN / VALENTINE</b> ETC 18yo ― S(HE)/<b>IT</b>/<b>THING</b>/COFFIN [(++)](https://pronouns.cc/@eliasbouchard) 
 
 <img src="https://file.garden/ZeI95KU2fRZAwqZH/43614-a87bbf3f-c602-4580-a74b-b308a2ab32b7-profile.jpg"/>
 <p align="center">
@@ -18,5 +18,5 @@ Howeverrr <b>tma/tmagp fans Pleaseeeplease interact.</b> Smiles. not forcing but
 </p>
 
 <img src="https://file.garden/ZeI95KU2fRZAwqZH/tumblr_f3cf942335fce123d9e5c83e07b1c03d_835629ac_100.png"/> <img src="https://file.garden/ZeI95KU2fRZAwqZH/dbrc5u0-36fb6452-bede-42f2-a113-484618e86df1.gif"/> <img src="https://file.garden/ZeI95KU2fRZAwqZH/b3zw5f.png"/> <img src="https://file.garden/ZeI95KU2fRZAwqZH/df3owqy-63035deb-c6d1-495f-b686-94d39123bec4.gif"/>
-<br> <b>links</b> [rentry](https://text.is/bouchard) [discord](https://discordapp.com/users/323915172676894720)
+<br> <b>links</b> [rentry](https://rentry.co/jonahmagnus) [discord](https://discordapp.com/users/323915172676894720)
 </div>
