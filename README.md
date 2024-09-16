@@ -1,22 +1,8 @@
-<div align="center"/>
-
-
-<b>FRIDAY / KIERAN / VALENTINE</b> ETC 18yo ― S(HE)/<b>IT</b>/<b>THING</b>/COFFIN [(++)](https://pronouns.cc/@eliasbouchard) 
-
-<img src="https://file.garden/ZeI95KU2fRZAwqZH/43614-a87bbf3f-c602-4580-a74b-b308a2ab32b7-profile.jpg"/>
-<p align="center">
-  
-</p>
-<p><b>very ok with interaction!</b> i basically never initiate but dont hesitate to talk to me or<br> whatever i dont bite ^_^ please <b>whisper</b> if you want my attention though. i am off tab/afk more <br> often than not soo i probably wont see ur msg otherwise. <b>no roleplay</b> please, <b>c + h</b> ok. </p> 
-<p>what else do i put here. i dont know. i barely go here. dont be weird</p>
-<p><b>dni</b> no super strict/specific dni i generally dont rlly care just dont be a bigot/creep and ur fine. <br> note i Do ignore/hide most <b>hazbin/helluva, southpark,</b> and <b>dsmp</b> people. i just kind of really</b> <br> hate seeing those medias if theyre ur main fandom i do not want to see it.</p>
-
-<p>
-  
-Howeverrr <b>tma/tmagp fans Pleaseeeplease interact.</b> Smiles. not forcing but also the fixation is bad im in <br> the trenches. i <img src="https://64.media.tumblr.com/a9425572bee503600b206d0bc4604672/1292363c2db9a7be-c7/s75x75_c1/d6a8be3d7b4591e87ba529e4d656ff65a2bc7adf.gifv"/> (in no particular order) melanie helen elias basira oliver gwen and lena. talk to me <br> about them and i put you on my will. Anywayss im also very into <b>milgram, idv, vocasynths,</b> horror rpgmakers, <br> fnaf, andddd ... other things. feel free to talk to me about any of these ! (+ whatever else [here](https://text.is/watcherscrown))
-
-</p>
-
-<img src="https://file.garden/ZeI95KU2fRZAwqZH/tumblr_f3cf942335fce123d9e5c83e07b1c03d_835629ac_100.png"/> <img src="https://file.garden/ZeI95KU2fRZAwqZH/dbrc5u0-36fb6452-bede-42f2-a113-484618e86df1.gif"/> <img src="https://file.garden/ZeI95KU2fRZAwqZH/b3zw5f.png"/> <img src="https://file.garden/ZeI95KU2fRZAwqZH/df3owqy-63035deb-c6d1-495f-b686-94d39123bec4.gif"/>
-<br> <b>links</b> [rentry](https://rentry.co/jonahmagnus) [discord](https://discordapp.com/users/323915172676894720)
+<div>
+   <p> 
+       <img src='https://file.garden/ZeI95KU2fRZAwqZH/tumblr_efe5b2499431d45cfe9dec768846409f_2d0b5db0_4001.gif' align='left' />
+       ⠀⠀⠀<img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-2-929d6732c5.png"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-2-929d6732c5.png"/> <br> ⠀⠀⠀<b>FRIDAY</b>/KIERAN/ETC ⠀⠀18yo ⠀⠀<img src="https://file.garden/ZeI95KU2fRZAwqZH/ed20db61.gif"/>⠀⠀ <b>IT</b>/<b>THING</b>/SHE/HE⠀ <a href="https://pronouns.cc/@bouchard">(+ OTHERS)</a> <br> ⠀⠀⠀<img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-7-b297613590.png"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-7-b297613590.png"/> <br> ⠀⠀⠀ok hiii everypony i rarely get on pt tbh but wanted to make this anyways. <b>c + h</b><br> ⠀⠀⠀ok, copying is whatever i sincerely dont care if anything i think it's funny. <b>no rps</b><br> ⠀⠀⠀though. im still super open to interaction however! go ahead. im off-tab a lot so<br> ⠀⠀⠀whispers are preferred otherwise ill probably maybe miss it. i also basically never<br>⠀⠀⠀interact first Sorry im like a vampire u have to invite me first. i like to think that im<br>⠀⠀⠀friendly enough though so pls dont hesitate to start chatting if u want ^_^ umm<br>⠀⠀⠀what else do i put here. idk. dont be weird that's all i ask im not big on dni lists<br>⠀⠀⠀<img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-2-4106cfa722.png"/><img src="https://file.garden/ZeI95KU2fRZAwqZH/ezgif-2-4106cfa722.png"/>
+   <p>
+    <br> <p>in case it isnt already obvious im also going through a major crazy <b>tma/tmagp</b> phase right now Soooo tma fans... if ur out there... <br> Pleaseee talk to me. Smiles. im not forcing you but also the fixation is bad ive been in the trenches for so long. i <img src="https://64.media.tumblr.com/a9425572bee503600b206d0bc4604672/1292363c2db9a7be-c7/s75x75_c1/d6a8be3d7b4591e87ba529e4d656ff65a2bc7adf.gifv"/> (in no particular<br> order) elias, helen, melanie, jon, oliver, sam, gwen and lena. talk to me about them and i will add u to my will. my crazies aside i also<br> like <b>milgram,</b> horror rpgmakers, <b>idv</b>, vocaloid/vocasynths, and many many other things listed <a href="https://text.is/watcherscrown">here</a> if u feel like reading.</p>
+<center>other links: ⠀⠀<a href="https://rentry.co/jonahmagnus">extended rentry</a>⠀⠀⠀<a href="https://discordapp.com/users/323915172676894720">discord</a></center>
 </div>
